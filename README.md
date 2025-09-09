@@ -1,1 +1,1 @@
-# delta_apna-cpllege-WD
+# delta_apna-college-WD
